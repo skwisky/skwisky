@@ -2,7 +2,7 @@
 <br> $\color{Orange}\Huge{\textbf{I'm whatever you want to call me,, I'm 15, and I go by masc shit.}}$
 <br> im Jolly And Friendly I promise. 
 <br> whisper to interact w/ me if im afk otherwise I'll be very clueless and unaware!
-<br> ...Check out my [ata](https://clickclique.atabook.org/). sign it, send me music!!! <sup><sub> something, something something.</sub></sup>
+<br> ...Check out my [ata](https://clickclique.atabook.org/). sign it, send me music!!! <sup><sub> i love seeing random peoples music taste </sub></sup>
 <br> -
 <br> if you support the 3 big paraphilias in any form, + if your under 13 then *dont talk to me*
 <br> ![image](https://github.com/user-attachments/assets/9e618cbd-56e7-4f79-8a80-900242f36b86)
