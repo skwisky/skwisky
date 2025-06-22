@@ -8,4 +8,4 @@
 <br> i like metalocalypse, metal gear, postal, cof, ffxiv, dungeon meshi, and blah blah blah.. a LOT more!!
 <br> -
 <br> warning, i use reclaimable slurs around people i know are comfortable w/ it, *i dont do this infront of people i dont know / people i know dislike it* ... so give me a heads up!
-<br>![image](https://github.com/user-attachments/assets/16d2b2bd-ac71-42ce-b5bc-daf26ba22de7)
+<br>![skwisgaarfag](https://github.com/user-attachments/assets/671b0256-a284-4b2a-8fbe-8935a6eef15c)
