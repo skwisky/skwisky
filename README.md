@@ -6,3 +6,4 @@
 <br> if you support the 3 big paraphilias in any form, + if your under 13 then *dont talk to me*
 <br> ![image](https://github.com/user-attachments/assets/9e618cbd-56e7-4f79-8a80-900242f36b86)
 <br> i like metalocalypse, metal gear, postal, cof, ffxiv, dungeon meshi, and blah blah blah.. a LOT more!!
+<br>![image](https://github.com/user-attachments/assets/16d2b2bd-ac71-42ce-b5bc-daf26ba22de7)
