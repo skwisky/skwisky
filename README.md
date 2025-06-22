@@ -1,5 +1,5 @@
 # 
-<br> **I'm whatever you want to call me,, I'm 15, and I go by masc shit.**
+<br> $${\color{orange}**I'm whatever you want to call me,, I'm 15, and I go by masc shit.**}$$
 <br> im Jolly And Friendly I promise. 
 <br> whisper to interact w/ me if im afk otherwise I'll be very clueless and unaware!
 <br> -
