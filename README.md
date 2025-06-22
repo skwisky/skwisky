@@ -1,5 +1,5 @@
 # 
-<br> $${\color{orange} **I'm whatever you want to call me,, I'm 15, and I go by masc shit.** }$$
+<br> **I'm whatever you want to call me,, I'm 15, and I go by masc shit.**
 <br> im Jolly And Friendly I promise. 
 <br> whisper to interact w/ me if im afk otherwise I'll be very clueless and unaware!
 <br> -
@@ -9,3 +9,4 @@
 <br> -
 <br> warning, i use reclaimable slurs around people i know are comfortable w/ it, *i dont do this infront of people i dont know / people i know dislike it* ... so give me a heads up!
 <br>![skwisgaarfag (1)](https://github.com/user-attachments/assets/3af67dbb-2f21-456f-a059-e81b49bb82c6)
+$${\color{orange}im whatever you wanna call me,, im 15, and i go by masc shit.}$$	
