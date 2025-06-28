@@ -1,7 +1,7 @@
 # 
 <br> $\color{Orange}\Huge{\textbf{I'm whatever you want to call me,, I'm 15, and I go by masc shit.}}$
 <br> im Jolly And Friendly I promise. 
-<br> whisper to interact w/ me if im afk otherwise I'll be very clueless and unaware!
+<br> whisper to interact w/ me otherwise I'll be very clueless and unaware!
 <br> ...Check out my [ata](https://clickclique.atabook.org/). send me music or something! <sup><sub> i love seeing random peoples music taste </sub></sup>
 <br> -
 <br> if you support the 3 big paraphilias in any form, + if your under 13 then *dont talk to me*
