@@ -10,3 +10,5 @@
 
 <br>![skwisgaarfag (1)](https://github.com/user-attachments/assets/3af67dbb-2f21-456f-a059-e81b49bb82c6)
 <br> cough cough, i use reclaimable slurs and *i dont do it infront of people i know dislike it / or dont know if their fine with it* ...
+
+<br> Join my magma.... [evil] https://magma.com/invite/PACF60NN
