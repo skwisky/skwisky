@@ -8,5 +8,5 @@
 > ![image](https://github.com/user-attachments/assets/9e618cbd-56e7-4f79-8a80-900242f36b86)
 <br> **i like death stranding, metalocalypse, metal gear, postal, cof, ffxiv, dungeon meshi, dr stone, and blah blah blah.. a LOT more!!**
 
-<br>![skwisgaarfag (1)](https://github.com/user-attachments/assets/3af67dbb-2f21-456f-a059-e81b49bb82c6)
+<br>![higgsfaggooottt](https://github.com/user-attachments/assets/67795542-acb9-44d1-a766-140c2d0cb20f)
 <br> cough cough, i use reclaimable slurs and *i dont do it infront of people i know dislike it / or dont know if their fine with it* ...
