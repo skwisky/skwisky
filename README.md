@@ -2,7 +2,7 @@
 <br> $\color{Orange}\Huge{\textbf{I'm whatever you want to call me,, I go by masc shit.}}$
 <br> if you support the 3 big paraphilias + if your under 13 then *dont talk to me*
 <br> 
-<br> im Jolly And Friendly I promise. 
+> im Jolly And Friendly I promise. 
 <br> whisper to interact w/ me (unless im actively walking around) otherwise I'll be very clueless and unaware!
 <br> ...Check out my [ata](https://clickclique.atabook.org/). send me music or something! <sup><sub> i love seeing random peoples music taste </sub></sup>
 <br>
